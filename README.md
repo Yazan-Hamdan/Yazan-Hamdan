@@ -70,6 +70,4 @@ I've worked with cross-functional teams and international stakeholders across:
 
 ---
 
-⭐️ From [Yazan-Hamdan](https://github.com/Yazan-Hamdan)
-
 *"Always excited to take on challenges that push the limits of innovation"*
